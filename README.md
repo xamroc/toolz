@@ -7,7 +7,7 @@ It is such a retarded name for a web app.
 
 hay this is christian and my pull request ^^
 
-yo man this is super serious!
+yo man this is super serious! Hello <><>
 
 ░░░░░░░░░▄░░░░░░░░░░░░░░▄░░░░
 ░░░░░░░░▌▒█░░░░░░░░░░░▄▀▒▌░░░
